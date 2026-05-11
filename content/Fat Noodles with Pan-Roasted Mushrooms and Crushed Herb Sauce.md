@@ -4,6 +4,7 @@ Source: [House & Garden](https://www.houseandgarden.co.uk/recipe/fat-noodles-wit
 
 Find the widest pasta you can for this comfort classic from Carla Lalli Music’s cookbook, *That Sounds So Good*. This method of pan-roasting mushrooms and finishing them with browned butter creates deeply savoury, glossy mushrooms perfect for pasta.
 
+![[Pasted image 20260511124550.png]]
 ---
 
 ## Ingredients

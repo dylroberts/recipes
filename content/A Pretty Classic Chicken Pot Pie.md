@@ -4,6 +4,8 @@ Source: https://www.alisoneroman.com/newsletters/chicken-pot-pie-video/
 
 If you like stuffing, if you like chicken, if you like things baked beneath a buttery crust, then this chicken pot pie is flexible, forgiving, and deeply comforting.
 
+![[Pasted image 20260511124616.png]]
+
 ---
 
 ## Ingredients
